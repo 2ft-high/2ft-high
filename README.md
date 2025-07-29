@@ -1,6 +1,6 @@
 
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=×&color=48A860)</p>
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=×&color=4A5D23)</p>
 
 <p align="center">
 나는 여자와 키스하는 것을 좋아한다
