@@ -3,7 +3,10 @@
 　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=×&color=4A5D23)</p>
 
 <p align="center">
-나는 여자와 키스하는 것을 좋아한다
+나의 귀염둥이 아내 <3
+
+<p align="center">
+  <img src="https://files.catbox.moe/g1hjgf.jpg" />
 
 　<p align="center">[ʀᴇɴᴛʀʏ](https://rentry.co/POLYTRlX) ★ [ᴀᴛᴀʙᴏᴏᴋ](https://floortub.atabook.org/) ★ [sᴛʀᴀᴡᴘᴀɢᴇ](https://2ft-high.straw.page/) ★ [ɢᴜɴs.ʟᴏʟ](https://guns.lol/2ft_high)</p> 
 
