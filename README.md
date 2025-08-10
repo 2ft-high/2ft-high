@@ -3,7 +3,7 @@
 　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=×&color=4A5D23)</p>
 
 <p align="center">
-this dude copied everything, even my name bro(yeon)😭😭
+this dude stoled my old style and even my name bro(yeon)😭😭
 <p align="center">
   <img src="https://files.catbox.moe/cecvc4.jpg" />
 
