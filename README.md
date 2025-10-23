@@ -1,8 +1,8 @@
 
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=×&color=6886A9)</p>
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=×&color=000000)</p>
 
-　<p align="center">[ʀᴇɴᴛʀʏ](https://rentry.co/POLYTRlX) ★ [ᴀᴛᴀʙᴏᴏᴋ](https://floortub.atabook.org/) ★ [sᴛʀᴀᴡᴘᴀɢᴇ](https://2ft-high.straw.page/) ★ [ɢᴜɴs.ʟᴏʟ](https://guns.lol/2ft_high)</p> 
+　<p align="center">[ʀᴇɴᴛʀʏ](https://rentry.co/isitreallyokay) ★ [ᴀᴛᴀʙᴏᴏᴋ](https://guessnowbabes.atabook.org/) ★ [ɢᴜɴs.ʟᴏʟ](https://guns.lol/2ft_high)</p> 
 
 
 <p align="center">
